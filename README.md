@@ -1,0 +1,2 @@
+# Troll
+chơi nhau thôi
